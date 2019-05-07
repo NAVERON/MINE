@@ -26,3 +26,16 @@
 
 <hr></hr>
 
+**信件原文（其中多数摘抄，但是不乏真情实感，感谢母亲的养育之恩）**
+
+![第1页](./Letter_raw/IMG_0615.jpg)
+![第2页](./Letter_raw/IMG_0616.jpg)
+![第3页](./Letter_raw/IMG_0617.jpg)
+![第4页](./Letter_raw/IMG_0618.jpg)
+![第5页](./Letter_raw/IMG_0619.jpg)
+![第6页](./Letter_raw/IMG_0620.jpg)
+![第7页](./Letter_raw/IMG_0621.jpg)
+![第8页](./Letter_raw/IMG_0622.jpg)
+![第9页](./Letter_raw/IMG_0623.jpg)
+
+
